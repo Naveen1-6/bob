@@ -1,2 +1,0 @@
-hyd 
-ramchandrapuram
